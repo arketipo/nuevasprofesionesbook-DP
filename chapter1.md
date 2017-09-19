@@ -6,5 +6,5 @@ Dicho esto, me gusta que me convenzan cuando estoy equivocado, es conveniente ro
 
 ## Crisis es sinónimo de oportunidad
 
-Esta es una de esas frases de autoayuda que en realidad no ayudan nada. 
+Esta es una de esas frases de autoayuda que en realidad no ayudan nada. En una conferencia en Bilbao escuché a Inma Ferragud contar el verdadero y completo origen de la expresión.
 
