@@ -6,5 +6,6 @@ Dicho esto, me gusta que me convenzan cuando estoy equivocado, es conveniente ro
 
 ## Crisis es sinónimo de oportunidad
 
-Esta es una de esas frases de autoayuda que en realidad no ayudan nada. En una conferencia en Bilbao escuché a Inma Ferragud contar el verdadero y completo origen de la expresión.
+Esta es una de esas frases de autoayuda que en realidad no ayudan nada. En una conferencia en Bilbao escuché a Inma Ferragud contar el verdadero y completo origen de la expresión. Se suele utilizar en épocas de crisis \(personales o generales\) para inyectar optimismo. En realidad falta la última parte que es la más importante para darle sentido. Escuché la historia en una [conferencia en streaming](http://www.innova-bilbao.com/ponencia-inma-ferragud/) de [Inma Ferragud](https://twitter.com/inmaferragud). Una crisis NO es algo bueno.
+
 
