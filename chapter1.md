@@ -28,5 +28,19 @@ Otro gran mito, es cierto que este colectivo usaba las redes sociales antes de f
 
 ## Si no trabajas en tus sueños…
 
-…lo harás en el de otros
+**…lo harás en el de otros.** Esta es una de las frases más mezquinas que han pronunciado los gurús de la autoayuda profesional. El trabajo es trabajo y la autorealización personal no tiene porque pasar por que tu idea empresarial tenga éxito. Se puede uno sentir realizado simplemente siendo un buen profesional y llevando a cabo de manera adecuada su labor y después ser feliz \(que a fin de cuentas es de lo que se trata\) pasando tiempo con la familia, creando side projects, formándose o simplemente tocando la guitarra en un grupo de heavy metal después de quitarte la corbata. No pasa nada en ayudar a otros a cumplir sus sueños… cada uno se marca sus propios objetivos y tener una empresa de éxito. Hay muchos ejemplos de personas que han hecho grandes cosas cuando su profesión era otra.
+
+* [Lebrel](https://www.instagram.com/lebrelfurniture/) un diseñador/fontanero que me encanta.
+
+## Emprender es la solución
+
+Solo tienes que leer algunos post con una simple búsqueda en google "la parte mala de emprender" para darte cuenta de las dificultades, problemas y riesgos que supone montar una empresa. Porque de eso se trata, no de autoempleo sino de crear algo con capacidad de crecimiento a nivel internacional. Emprender no es para todo el mundo, hay que ser: ambicioso, tener contactos, capacidad de trabajo, sacrificio para renunciar a muchas cosas…  y no todo el mundo las tenemos. Además de el arquitecto también son muy necesarios los que ponemos los ladrillos. En un país donde se publican demasiados libros, se crean demasiadas empresas y todo el mundo quiere tener su minuto de gloria en youtube o las redes sociales, los que muchas veces mejoran las cosas son esas homiguitas que trabajan en silencio poniendo cariño en lo que hacen e intentando aprender un poco cada dia con una sonrisa. Un triunfador no es Leonardo di Caprio en el Lobo de Wall Street, se parece más, según mi opinión al que cantaba [Fabián en su canción](https://www.youtube.com/watch?v=S_TxkFkEmTo).
+
+## Esfuérzate y lo conseguirás
+
+Estudia chino
+
+Hay que innovar
+
+Tiene que ser un producto/servicio que guste a todo el mundo
 
