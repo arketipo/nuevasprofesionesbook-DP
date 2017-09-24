@@ -22,5 +22,11 @@ Por ello creo más adecuado ser ágil y pendiente del cambio que concentrarse en
 
 Como en todo siempre hay estadísticas que prueban una cosa u otra y siempre se ha planteado que la gente más alta, más guapa, etc tiene mejores sueldos y mejores oportunidades laborales. Eso no tiene por que ser por una mera razón estética, sino porque probablemente pertenecen a estaus sociales más acomodades \(acceso a instalaciones deportivas, cuidado dental, alimentación sana…\) y sobre todo a las redes de contactos que se generan. De todos modos mi objetivo no es sentar dogmas sino que nos replanteemos cosas que siempre se dan por ciertas y ocurre con mucha frecuencia que en altas cotas profesionales puede ocurrir totalmente lo contrario, que un gran físico sea causa de peor credibilidad o una percepción errónea de la valía de un profesional. Han ocurrido varios casos en medios generalistas de USA en los que mujeres periodistas muy bellas tenían problemas, a pesar de su talento y experiencia, en acceder a puestos directivos en sus respectivos medios. Comparto un artículo sobre el tema para que cada uno saque sus propias conclusiones.[ Vote for ugly](https://www.newyorker.com/tech/elements/vote-for-ugly).
 
+## Si ves camiones, se come bien
 
+Otro gran mito, es cierto que este colectivo usaba las redes sociales antes de facebook, pero básicamente comen donde hay suficiente espacio para aparcar. Por eso no siempre la mejor elección es ir al evento líder de tu sector o al de más renombre. Lo interesante de un evento no son casi nunca las charlas, sino las conversaciones que se generan
+
+## Si no trabajas en tus sueños…
+
+…lo harás en el de otros
 
