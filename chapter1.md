@@ -24,5 +24,3 @@ Como en todo siempre hay estadísticas que prueban una cosa u otra y siempre se 
 
 
 
-
-
