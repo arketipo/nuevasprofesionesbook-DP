@@ -24,7 +24,7 @@ Como en todo siempre hay estadísticas que prueban una cosa u otra y siempre se 
 
 ## Si ves camiones, se come bien
 
-Otro gran mito, es cierto que este colectivo usaba las redes sociales antes de facebook, pero básicamente comen donde hay suficiente espacio para aparcar. Por eso no siempre la mejor elección es ir al evento líder de tu sector o al de más renombre. Lo interesante de un evento no son casi nunca las charlas, sino las conversaciones que se generan
+Otro gran mito, es cierto que este colectivo usaba las redes sociales antes de facebook, pero básicamente comen donde hay suficiente espacio para aparcar. Por eso no siempre la mejor elección es ir al evento líder de tu sector o al de más renombre. Lo interesante de un evento no son casi nunca las charlas, sino las conversaciones que se generan y sobre todo las personas que conocemos. En un evento muy grande y 100% de nuestra área de trabajo será más difícil establecer contactos de calidad, básicamente porque estaremos rodeados de nuestra competencia. Y si bien es cierto que al enemigo es mejor tenerlo cerca donde conseguiremos, al menos en mi caso, contactos más interesantes es en sitios poco habituales. Me gusta más hablar con programadores, músicos, gastrónomos… que con otros diseñadores con los que muchas veces las conversaciones derivan en quejas hacia lo poco valorada que está la profesión o el poco gusto que tiene los clientes al valorar sus maravillosos diseños BULLSHIT!
 
 ## Si no trabajas en tus sueños…
 
