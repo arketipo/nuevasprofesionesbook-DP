@@ -38,7 +38,7 @@ Solo tienes que leer algunos post con una simple búsqueda en google "la parte m
 
 ## Se gana más como autónomo
 
-Solo añadiría que si queremos tener un sueldo de 1.500 euros al mes hay que facturar mínimo el doble \(sin contar vacaciones, bajas, etc.\). Así que divide y resta sobre la estimación de ingresos y probablemente te lleves una sorpresa.
+Muy matizable. Solo añadiría que si queremos tener un sueldo de 1.500 euros al mes hay que facturar mínimo el doble \(sin contar vacaciones, bajas, etc.\). Así que divide y resta sobre la estimación de ingresos y probablemente te lleves una sorpresa.
 
 ## Esfuérzate y lo conseguirás
 
