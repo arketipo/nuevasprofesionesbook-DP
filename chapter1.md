@@ -46,7 +46,7 @@ Otra de esas cosas que se suelen oir mucho en eventos, charlas y demás es lo de
 
 ## Estudia chino
 
-En mi ciudad se reunión a un montón de gente con grandes capacidades, por talento, experiencia, logros en un programa denominado Talentia. Se hacían encuentros para buscar posibilidades de crecimiento, innovación… y en uno de ellos, el "listo de turno" les dijo que tenían que estudiar chino. Algo absurdo y explico porqué:
+En mi ciudad se reunión a un montón de gente con grandes capacidades, por talento, experiencia, logros en un programa denominado Talentia. Se hacían encuentros para buscar posibilidades de crecimiento, innovación… y en uno de ellos, el "listo de turno" les dijo que tenían que estudiar chino. Algo absurdo y explico porqué:
 
 * La mayoría dominaban el inglés y estaban aprendiendo otra lengua y llevaban años con ese estudio \(por ejemplo alemán\).
 * Gente muy ocupada con doctorados, trabajos exigentes, etc debían comenzar con una nueva lengua.,
@@ -64,7 +64,11 @@ En las escuelas de negocio se llenan la boca hablando del iPhone, pero hay que e
 
 ## Tiene que gustarle a todo el mundo
 
-Afortunadamente
+Ya lo dice el refrán: quien mucho abarca, poco aprieta. Por eso tenemos que tener clar que no se pueden crear mensajes que funcionen universalmente. Esto lo extendería a productos, cada zona tiene sus peculiaridades:
+
+* Físicas: como el tamaño de las manos.
+* Culturales: el significado de los colores difiere de unos sitios a otros. Es habitual encontrar restricciones en Japón con colores como el blanco, números o simplemente diferencias en la apariencia de lso mensajes a los que están habituados.
+* De costumbre: un ejemplo curioso es el fantástico proyecto OLPC \(one laptor per child\) diseñado por mi admirado Yves Behar hasta que empezó a meter la pata diseñando licuadoras. Ese portátil tenía un asa para transportarlo a modo de maletín, pero iba a ser distribuído mayoritariamente en Sudamérica y África, un lugar donde las cosas importantes son transportadas sobre la cabeza. No ocurrió así, pero no tener en cuenta las características de una comunidad puede acarrear el fracaso de un producto y pérdidas millonarias.
 
 
 
