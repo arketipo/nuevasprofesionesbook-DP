@@ -42,11 +42,11 @@ Muy matizable. Solo añadiría que si queremos tener un sueldo de 1.500 euros al
 
 ## Esfuérzate y lo conseguirás
 
-Estudia chino
+## Estudia chino
 
-Hay que innovar
+## Hay que innovar
 
-## 
+## Tiene que gustarle a todo el mundo
 
-Tiene que ser un producto/servicio que guste a todo el mundo
+
 
