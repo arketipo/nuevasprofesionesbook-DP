@@ -42,11 +42,29 @@ Muy matizable. Solo añadiría que si queremos tener un sueldo de 1.500 euros al
 
 ## Esfuérzate y lo conseguirás
 
+Otra de esas cosas que se suelen oir mucho en eventos, charlas y demás es lo de las 10.000 horas. Si te esfuerzas y dedicas el debido tiempo te convertiras en un experto en la materia. Soy un admirador de Malcolm Gladwell desde que le escuché [hablar de la salsa para pasta](https://www.youtube.com/watch?v=VkhFh5Ms1vc). Y lo que dice no es eso, sino que necesitas ese mínimo de 10.000 horas para alcanzar tu capacidad máxima: cita a prodigios como Mozart o los Beatles y como necesitaron ese tiempo para alcanzar la maestría en sus instrumentos y composición, aunque su mejor trabajo llegó más tarde. Por tanto el concepto de 10.000 horas podría decirse que: **puedes dedicar 10.000 horas a tocar el piano y cuando llegues habrás alcanzado casi tu techo como pianista, pero puede que apeste lo que toques**. Por tanto mi recomendación es que al igual que un libro o una película que no nos gusta, no hay que tener reparos en abandonar una actividad que no nos da el debido retorno. Una cosa es la tenacidad y la perseverancia y otra perseguir ElDorado aunque no exista.
+
 ## Estudia chino
+
+En mi ciudad se reunión a un montón de gente con grandes capacidades, por talento, experiencia, logros en un programa denominado Talentia. Se hacían encuentros para buscar posibilidades de crecimiento, innovación… y en uno de ellos, el "listo de turno" les dijo que tenían que estudiar chino. Algo absurdo y explico porqué:
+
+* La mayoría dominaban el inglés y estaban aprendiendo otra lengua y llevaban años con ese estudio \(por ejemplo alemán\).
+* Gente muy ocupada con doctorados, trabajos exigentes, etc debían comenzar con una nueva lengua.,
+* El chino es un idioma muy desagradecido en el que sonidos aparentemente iguales significan cosas diametralmente opuestas.
+* Por mucho chino que aprendas, seguirás necesitando un traductor local, no solo por el idioma sino por las argucias utilizadas en los negocios. Es muy interesante conocer las formas educadas de saludos y convenciones pero necesitas años para conseguir un nivel mínimo de conversación.
+* Si eres mujer, tendrás problemas en las negociaciones, no por el nivel del idioma, sino por el machismo.
+
+Esto lo digo porque siempre tengo en cuenta el ROI y así como puedes tener un nivel interesante de Euskera el primer año, y todo lo que estudies de inglés va a tener un retorno rápido, no ocurre así con lenguas tan distantes como el chino. Conozco de hecho el caso de un amigo mio \(muy inteligente por cierto\) y que después de cinco años no se siente capaz de mantener una conversación. Así que las recomendaciones gratuítas con el esfuerzo de los demás, deberían ser emitidas con más cautela.
 
 ## Hay que innovar
 
+Este tema daría para otro libro, pero a nivel práctico funciona mejor copiar o mejorar la idea de alguien que ya la ha puesto en marcha que crear algo diruptivo. Este concepto significa algo totalmente nuevo que cambia completamente el mercado y crear nuevas formas de trabajo y negocio. Uno fue el automóvil y podríamos decir que las tabletas y smartphones es otro. Así que es muy difícil conseguir una innovación de este calibre y aún más conseguir beneficios con ella.
+
+En las escuelas de negocio se llenan la boca hablando del iPhone, pero hay que escuchar a los viejos como yo y recordar que décadas antes sacó un dispositivo aún más revolucionario, el Apple Newton, que fue un fracaso probablemente por adelantarse a su tiempo.
+
 ## Tiene que gustarle a todo el mundo
+
+Afortunadamente
 
 
 
