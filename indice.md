@@ -1,6 +1,6 @@
 * Introducción
 * Prólogo
-* Capítulo 1 - Rompiendo mitos
+* **Capítulo 1 - Rompiendo mitos**
 * Capítulo 2 - Hacia donde vamos
 * Capítulo 3 - De donde sugen las profesiones
 * Capítulo 4 - Pato o Halcón
