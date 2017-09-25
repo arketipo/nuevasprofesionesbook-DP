@@ -36,11 +36,17 @@ Otro gran mito, es cierto que este colectivo usaba las redes sociales antes de f
 
 Solo tienes que leer algunos post con una simple búsqueda en google "la parte mala de emprender" para darte cuenta de las dificultades, problemas y riesgos que supone montar una empresa. Porque de eso se trata, no de autoempleo sino de crear algo con capacidad de crecimiento a nivel internacional. Emprender no es para todo el mundo, hay que ser: ambicioso, tener contactos, capacidad de trabajo, sacrificio para renunciar a muchas cosas…  y no todo el mundo las tenemos. Además de el arquitecto también son muy necesarios los que ponemos los ladrillos. En un país donde se publican demasiados libros, se crean demasiadas empresas y todo el mundo quiere tener su minuto de gloria en youtube o las redes sociales, los que muchas veces mejoran las cosas son esas homiguitas que trabajan en silencio poniendo cariño en lo que hacen e intentando aprender un poco cada dia con una sonrisa. Un triunfador no es Leonardo di Caprio en el Lobo de Wall Street, se parece más, según mi opinión al que cantaba [Fabián en su canción](https://www.youtube.com/watch?v=S_TxkFkEmTo).
 
+## Se gana más como autónomo
+
+Solo añadiría que si queremos tener un sueldo de 1.500 euros al mes hay que facturar mínimo el doble \(sin contar vacaciones, bajas, etc.\). Así que divide y resta sobre la estimación de ingresos y probablemente te lleves una sorpresa.
+
 ## Esfuérzate y lo conseguirás
 
 Estudia chino
 
 Hay que innovar
+
+## 
 
 Tiene que ser un producto/servicio que guste a todo el mundo
 
