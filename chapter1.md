@@ -40,6 +40,8 @@ Solo tienes que leer algunos post con una simple búsqueda en google "la parte m
 
 Muy matizable. Solo añadiría que si queremos tener un sueldo de 1.500 euros al mes hay que facturar mínimo el doble \(sin contar vacaciones, bajas, etc.\). Así que divide y resta sobre la estimación de ingresos y probablemente te lleves una sorpresa.
 
+Es muy clarificador este[ post de Jerónimo Palacios sobre la figura de los contractors](http://mailchi.mp/jeronimopalacios/pqyxgrwa3i-2771221?e=dd1afc3789).
+
 ## Esfuérzate y lo conseguirás
 
 Otra de esas cosas que se suelen oir mucho en eventos, charlas y demás es lo de las 10.000 horas. Si te esfuerzas y dedicas el debido tiempo te convertiras en un experto en la materia. Soy un admirador de Malcolm Gladwell desde que le escuché [hablar de la salsa para pasta](https://www.youtube.com/watch?v=VkhFh5Ms1vc). Y lo que dice no es eso, sino que necesitas ese mínimo de 10.000 horas para alcanzar tu capacidad máxima: cita a prodigios como Mozart o los Beatles y como necesitaron ese tiempo para alcanzar la maestría en sus instrumentos y composición, aunque su mejor trabajo llegó más tarde. Por tanto el concepto de 10.000 horas podría decirse que: **puedes dedicar 10.000 horas a tocar el piano y cuando llegues habrás alcanzado casi tu techo como pianista, pero puede que apeste lo que toques**. Por tanto mi recomendación es que al igual que un libro o una película que no nos gusta, no hay que tener reparos en abandonar una actividad que no nos da el debido retorno. Una cosa es la tenacidad y la perseverancia y otra perseguir ElDorado aunque no exista.
