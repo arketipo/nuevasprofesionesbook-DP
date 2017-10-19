@@ -20,7 +20,7 @@ Por ello creo más adecuado ser ágil y pendiente del cambio que concentrarse en
 
 ## La gente guapa tiene mejores sueldos
 
-Como en todo siempre hay estadísticas que prueban una cosa u otra y siempre se ha planteado que la gente más alta, más guapa, etc tiene mejores sueldos y mejores oportunidades laborales. Eso no tiene por que ser por una mera razón estética, sino porque probablemente pertenecen a estaus sociales más acomodades \(acceso a instalaciones deportivas, cuidado dental, alimentación sana…\) y sobre todo a las redes de contactos que se generan. De todos modos mi objetivo no es sentar dogmas sino que nos replanteemos cosas que siempre se dan por ciertas y ocurre con mucha frecuencia que en altas cotas profesionales puede ocurrir totalmente lo contrario, que un gran físico sea causa de peor credibilidad o una percepción errónea de la valía de un profesional. Han ocurrido varios casos en medios generalistas de USA en los que mujeres periodistas muy bellas tenían problemas, a pesar de su talento y experiencia, en acceder a puestos directivos en sus respectivos medios. Comparto un artículo sobre el tema para que cada uno saque sus propias conclusiones.[ Vote for ugly](https://www.newyorker.com/tech/elements/vote-for-ugly).
+Como en todo siempre hay estadísticas que prueban una cosa u otra y siempre se ha planteado que la gente más alta, más guapa, etc tiene mejores sueldos y mejores oportunidades laborales. Eso no tiene por que ser por una mera razón estética, sino porque probablemente pertenecen a estatus sociales más acomodados \(acceso a instalaciones deportivas, cuidado dental, alimentación sana…\) y sobre todo a las redes de contactos que se generan. De todos modos mi objetivo no es sentar dogmas sino que nos replanteemos cosas que siempre se dan por ciertas y ocurre con mucha frecuencia que en altas cotas profesionales puede ocurrir totalmente lo contrario, que un gran físico sea causa de peor credibilidad o una percepción errónea de la valía de un profesional. Han ocurrido varios casos en medios generalistas de USA en los que mujeres periodistas muy bellas tenían problemas, a pesar de su talento y experiencia, en acceder a puestos directivos en sus respectivos medios. Comparto un artículo sobre el tema para que cada uno saque sus propias conclusiones.[ Vote for ugly](https://www.newyorker.com/tech/elements/vote-for-ugly).
 
 ## Si ves camiones, se come bien
 
@@ -28,7 +28,7 @@ Otro gran mito, es cierto que este colectivo usaba las redes sociales antes de f
 
 ## Si no trabajas en tus sueños…
 
-**…lo harás en el de otros.** Esta es una de las frases más mezquinas que han pronunciado los gurús de la autoayuda profesional. El trabajo es trabajo y la autorealización personal no tiene porque pasar por que tu idea empresarial tenga éxito. Se puede uno sentir realizado simplemente siendo un buen profesional y llevando a cabo de manera adecuada su labor y después ser feliz \(que a fin de cuentas es de lo que se trata\) pasando tiempo con la familia, creando side projects, formándose o simplemente tocando la guitarra en un grupo de heavy metal después de quitarte la corbata. No pasa nada en ayudar a otros a cumplir sus sueños… cada uno se marca sus propios objetivos y tener una empresa de éxito. Hay muchos ejemplos de personas que han hecho grandes cosas cuando su profesión era otra.
+**…lo harás en el de otros.** Esta es una de las frases más mezquinas que han pronunciado los gurús de la autoayuda profesional. El trabajo es trabajo y la autorealización personal no tiene porque pasar por que tu idea empresarial tenga éxito. Se puede uno sentir realizado simplemente siendo un buen profesional y llevando a cabo de manera adecuada su labor y después ser feliz \(que a fin de cuentas es de lo que se trata\) pasando tiempo con la familia, creando side projects, formándose o simplemente tocando la guitarra en un grupo de heavy metal después de quitarte la corbata. No pasa nada en ayudar a otros a cumplir sus sueños… cada uno se marca sus propios objetivos y tener una empresa de éxito no tiene por qué serlo. Hay muchos ejemplos de personas que han hecho grandes cosas cuando su profesión era otra.
 
 * [Lebrel](https://www.instagram.com/lebrelfurniture/) un diseñador/fontanero que me encanta.
 
@@ -66,10 +66,10 @@ En las escuelas de negocio se llenan la boca hablando del iPhone, pero hay que e
 
 ## Tiene que gustarle a todo el mundo
 
-Ya lo dice el refrán: quien mucho abarca, poco aprieta. Por eso tenemos que tener clar que no se pueden crear mensajes que funcionen universalmente. Esto lo extendería a productos, cada zona tiene sus peculiaridades:
+Ya lo dice el refrán: quien mucho abarca, poco aprieta. Por eso tenemos que tener claro que no se pueden crear mensajes que funcionen universalmente. Esto lo extendería a productos, cada zona tiene sus peculiaridades:
 
 * Físicas: como el tamaño de las manos.
-* Culturales: el significado de los colores difiere de unos sitios a otros. Es habitual encontrar restricciones en Japón con colores como el blanco, números o simplemente diferencias en la apariencia de lso mensajes a los que están habituados.
+* Culturales: el significado de los colores difiere de unos sitios a otros. Es habitual encontrar restricciones en Japón con colores como el blanco, números o simplemente diferencias en la apariencia de los mensajes a los que están habituados.
 * De costumbre: un ejemplo curioso es el fantástico proyecto OLPC \(one laptor per child\) diseñado por mi admirado Yves Behar hasta que empezó a meter la pata diseñando licuadoras. Ese portátil tenía un asa para transportarlo a modo de maletín, pero iba a ser distribuído mayoritariamente en Sudamérica y África, un lugar donde las cosas importantes son transportadas sobre la cabeza. No ocurrió así, pero no tener en cuenta las características de una comunidad puede acarrear el fracaso de un producto y pérdidas millonarias.
 
 
