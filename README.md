@@ -4,3 +4,5 @@ El porqué de este libro no es muy complejo. Soy de los que ya prefieren hacer c
 
 Este libro es otra de esas cosas que intentan hacer que mi entorno mejore y por supuesto una de las cosas que más me preocupan es el trabajo.
 
+
+
